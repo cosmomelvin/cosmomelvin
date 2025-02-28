@@ -1,3 +1,6 @@
+### Hello there ⭐
+
+# About me
 - 👋 Hi, I’m @cosmomelvin
 - 👀 I’m interested in bettering myself, diving, the water, extreme sports
 - 🌱 I’m currently studying Biology in the University of Porstmouth.
